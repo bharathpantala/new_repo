@@ -4,3 +4,5 @@ hai buddy
 I reintilised a read me file.
 Nothing to do commit
 hey likki .
+I love you ra lliki
+i miss you ra likki.
